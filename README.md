@@ -3,5 +3,5 @@
 - **İlayda Bulut**
 - **Merve Yücetaş**
 - **Mehmet Kubilay Tekin**
-- **Muhammed Can Aytekin**
+- **Nisa Nur Taş**
 - **İdil Kalkan**
