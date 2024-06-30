@@ -4,4 +4,3 @@
 - **Merve Yücetaş**
 - **Mehmet Kubilay Tekin**
 - **Nisa Nur Taş**
-- **İdil Kalkan**
